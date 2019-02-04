@@ -24,7 +24,7 @@ The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
 Peter met the Unicorn King who granted him magic powers.
-The end.
+Then Peter flew around with his ears but he flew too close to the sun and his wings melted and he fell and he was vanquished and the end.
 
 ## Cast
 
