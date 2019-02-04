@@ -7,8 +7,9 @@ Behind it, he finds a magical world of unicorns living in perfect piece and harm
 
 ## Plot
 
-Peter woke to the sound of traffic, the sky was gray.
-After his typical breakfast of toast and an egge he left for school.
+Peter woke to the sound of traffic, the sky was gray. 
+Zookeeper says hey.
+After his typical breakfast of toast and an egg he left for school.
 Normally Peter would have walked down Bleaker streat, but today there was construction and he decided to take Flanders behind the zoo.
 
 Being on time was not one of Peter’s specialities today would prove to be no different.
